@@ -1,2 +1,2 @@
 # DDos-Bypass-Cloudflare-sucuri
-https://discord.gg/CfJt8y to buy private script
+Discord: uninstall#9477 to buy private script
